@@ -18,4 +18,4 @@
 
 - 🌦️ My favorite Season is Spring and second is summer. (Liking winter is an L) 
 
-- ⚡ I have an unhealthy addiction to gacha games. My favorite being DBZ:: Dokkan Battle 
+- ⚡ I have an unhealthy addiction to gacha games. My favorite being DBZ: Dokkan Battle 
